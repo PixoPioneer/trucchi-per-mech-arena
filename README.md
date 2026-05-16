@@ -21,7 +21,15 @@
   <li><strong>Skin illimitate.</strong></li>
 </ul>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Mech Arena](https://rebrand.ly/PixelPioneer)** 🔴🔴
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/PixoPioneer">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
+</a>
+</h1>
+
+</div>
 
 <p>Ogni risorsa ottenuta tramite i <strong>trucchi per Mech Arena</strong> è completamente utilizzabile nel gioco, senza limiti o restrizioni. Potrai potenziare le tue unità, sbloccare skin uniche e accedere a equipaggiamenti di livello superiore. Questo ti permetterà di affrontare anche i giocatori più esperti senza alcuna difficoltà, trasformando la tua esperienza di gioco in un percorso sempre entusiasmante.</p>
 
@@ -84,4 +92,12 @@
 
 <p><strong>Clicca adesso sul pulsante qui sotto</strong> per accedere al generatore e ottenere le tue risorse illimitate in pochi minuti. È facile, veloce e soprattutto gratuito. Agisci ora!</p>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Mech Arena](https://rebrand.ly/PixelPioneer)** 🔴🔴
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/PixoPioneer">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
+</a>
+</h1>
+
+</div>
